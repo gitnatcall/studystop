@@ -1,2 +1,2 @@
 # studystop
-fire website frfrfr nocap
+Study 
